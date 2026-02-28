@@ -1,1 +1,1 @@
-Gracia Christy Songgigilan 122
+Gracia Christy Songgigilan
